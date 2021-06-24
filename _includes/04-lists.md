@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Things did i like
+1. Eminem
+2. Parmegiana
+3. Steam
